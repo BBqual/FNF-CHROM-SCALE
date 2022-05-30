@@ -1,1 +1,1 @@
-# I'm gay
+# I love ameryka
